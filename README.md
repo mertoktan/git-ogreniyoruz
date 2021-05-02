@@ -8,4 +8,4 @@
 
 > Damlaya damlaya göl olur.
 
-> Hızlı giden atın boku seyrek düşer.
+> Ağaç yaşken eğilir.
