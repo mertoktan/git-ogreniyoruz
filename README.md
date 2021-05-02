@@ -5,3 +5,5 @@
 > Ayağını yorganına göre uzat.
 
 > Ekinler baş vermeden kör buzağı topallamaz.
+
+> Damlaya damlaya göl olur.
