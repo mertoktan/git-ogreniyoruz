@@ -3,3 +3,9 @@
 > Sakla samanı gelir zamanı.
 
 > Ayağını yorganına göre uzat.
+
+> Ekinler baş vermeden kör buzağı topallamaz.
+
+> Damlaya damlaya göl olur.
+
+> Hızlı giden atın boku seyrek düşer.
