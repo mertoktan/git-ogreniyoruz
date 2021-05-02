@@ -7,3 +7,5 @@
 > Ekinler baş vermeden kör buzağı topallamaz.
 
 > Damlaya damlaya göl olur.
+
+> Hızlı giden atın boku seyrek düşer.
